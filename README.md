@@ -1,3 +1,5 @@
-# JDL_PIXEL
-Toller Test!
-HG WORLD IST TOLL
+# My Profile
+Current projects 🚧
+➭ HGWorld.net
+➭ gwn-clan.de
+➭ jdlpixel.de/download
