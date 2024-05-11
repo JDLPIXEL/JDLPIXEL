@@ -1,5 +1,5 @@
 # My Profile
 Current projects 🚧
-➭ HGWorld.net
 ➭ gwn-clan.de
+➭ hgworld.net
 ➭ jdlpixel.de/download
